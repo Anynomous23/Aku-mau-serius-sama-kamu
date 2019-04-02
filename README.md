@@ -1,0 +1,2 @@
+# Aku-mau-serius-sama-kamu
+aku mau serius sama kamu , apakah kamu mau serius sama aku??  dari awal aku kenal kamu sampai sekarang aku ngerasa cocok aja gitu sama kamu ,yaa walaupun terkadang kamu bales chat nya nyebelin tapi disini aku bener" mau serius sama kamu , km mau jalanin sama" sma aku?? km juga punya hak koq buat mikir beribu ribu kali untuk sama aku karena aku yg sekarang aku apadanya , tapi insya allah aku jg lahi usaha cari kerjaan yang bener" tepat buat aku . insya allah aku akan jaga kamu dan hati kamu . makasih 🙏
